@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @notkelly1
 - 👀 I’m interested in ... statistics
-- 🌱 I’m currently learning ... nothing
+- 🌱 I’m currently learning ... competitive gaslighting
 - 💞️ I’m looking to ... sleep
 - 📫 Email: kelly.wangwzs@gmail.com
 
