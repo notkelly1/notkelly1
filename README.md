@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @notkelly1
 - 👀 I’m interested in ... statistics
 - 🌱 I’m currently learning ... nothing
-- 💞️ I’m looking to ... 
+- 💞️ I’m looking to ... lose braincells
 - 📫 Email: kelly.wangwzs@gmail.com
 
 <!---
