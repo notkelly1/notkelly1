@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @notkelly1
+- 👋 Hi, I’m Kelly!
+- 💞️ Currently Working on TSF 2024 with @wither-rose
 - 👀 I’m interested in ... statistics
 - 🌱 I’m currently learning ... competitive gaslighting
-- 💞️ I’m looking to ... sleep
 - 📫 Email: kelly.wangwzs@gmail.com
 
 <!---
