@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kelly!
-- 💞️ Currently Working on TSF 2025 with @wither-rose
+- 💞️ Currently Working on TSF 2026 with @erynidye
 - 👀 I’m interested in ... statistics
 - 🌱 I’m currently learning ... competitive gaslighting
 - 📫 Email: kelly.wangwzs@gmail.com
