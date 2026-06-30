@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Kelly!
-- 💞️ Currently Working on TSF 2026 with @erynidye
+- 💞️ Currently Working my Horizions 2026 Project
 - 👀 I’m interested in ... statistics
-- 🌱 I’m currently learning ... competitive gaslighting
 - 📫 Email: kelly.wangwzs@gmail.com
 
 <!---
